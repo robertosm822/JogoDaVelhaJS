@@ -2,5 +2,3 @@
 
 ♥ [APRESENTANDO]
 Uma melhoria na ideia da aula: https://www.youtube.com/watch?v=osUbSqA3nVI
-
-
